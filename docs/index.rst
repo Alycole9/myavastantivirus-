@@ -1,5 +1,5 @@
-How to Contact Avast Antivirus Customer Support?
-===============================================
+How to Contact Avast Antivirus?
+================================
 
 
 
